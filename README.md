@@ -10,7 +10,7 @@
 
 - 📫 How to reach me **raushandtu@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1ppbUldm0KfRgrBwv87JD8c__C9NDRhlA/view?usp=sharing](https://drive.google.com/file/d/1ppbUldm0KfRgrBwv87JD8c__C9NDRhlA/view?usp=sharing)
+- 📄 Know about my experiences ([https://drive.google.com/file/d/1ppbUldm0KfRgrBwv87JD8c__C9NDRhlA/view?usp=sharing](https://drive.google.com/file/d/1WvePUI8lGAh11QUD6sP-g9HKNDpKupSP/view?usp=sharing))
 
 - ⚡ Fun fact **I think I am Funny**
 
